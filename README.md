@@ -1,6 +1,6 @@
 # Report= [Hello Rubika Support. This user is typing, sending and forwarding obscene and offensive messages to users and locking hacker and typist identities is causing harassment to other users. Please review and limit.]
 
-# Violation= https://uploadkon.ir/uploads/1dc123_26fil-fyl-fil-fyl-account-Typer-rub1ka-py.pdf
+# Violation rubika.ir/M20________________________25= https://uploadkon.ir/uploads/1dc123_26fil-fyl-fil-fyl-account-Typer-rub1ka-py.pdf
 خامنه‌ای کون‌پاره پیر، کیرم تو کص پوسیده زن جنده‌ت تا رحم‌ش جر بخوره و خون بریزه،
 ننه‌ت رو گاییدم چهار دست و پا مثل سگ تو بیت رهبری، داد می‌زد بیشتر جر بده لاشی،
 کیرم تو حلق خودت تا ریه‌هات پر شه از منی و خفه بشی تو تاریکی کون‌گشادت،
